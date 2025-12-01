@@ -57,11 +57,11 @@ Remove the permissive ecosystem → no solid tumor can survive, regardless of dr
 
 
 ### Support the Mission  
-**Donate To Us**  
+**Donate To our ETH address**  
 `0x8F69c8eB92Ed068Aa577cE1847D568B39b0d9EBF`  
 
 This is the people’s cure.  
-No shareholders. No patents. No compromise.
+No shareholders. No patents. No compromise. Join us in making cancer a thing of the past 
 
 **Cancer ends when we decide it ends.**  
 We have decided enough is enough 
